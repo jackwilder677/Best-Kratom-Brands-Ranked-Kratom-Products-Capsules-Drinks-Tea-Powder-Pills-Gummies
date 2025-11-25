@@ -26,16 +26,16 @@ It doesn't matter if you're new to kratom or have used it before. Keep reading t
 
 | Rank | Brand               | Best Product                          | Best For                  | Price (Kilo) |  
 |------|---------------------|---------------------------------------|--------------------------|-------------|  
-| 1    | **[Krabot](https://www.krabot.com/)** | [Enhanced Maeng Da Powder](https://www.krabot.com/collections/kratom-powder) | Energy & Focus           | **Get 15% Off - Use Code: Github15**        |  
-| 2    | **[White Rabbit Energy](https://whiterabbitenergy.com/)** | [Energy Seltzer](https://whiterabbitenergy.com/collections/all) | Caffeine-Free Boost       | $14/can     |  
-| 3    | **Super Speciosa**  | [Signature Reserve](https://superspeciosa.com/products/signature-reserve) | Maximum Potency           | $140        |  
-| 4    | **Golden Monk**     | [Red Sumatra](https://www.goldenmonk.com/red-sumatra/) | Anxiety Relief            | $105        |  
-| 5    | **MIT45**           | [KShot Liquid Extract](https://mit45.com/product/kshot/) | Fast-Acting Pain Relief   | $150        |  
+| 1    | **Jack Botanicals** | Enhanced Maeng Da Powder | Energy & Focus           | **Get 30% Off - Use Code: jack30**        |  
+| 2    | ** White Rabbit Energy** | Energy Seltzer | Caffeine-Free Boost       | $14/can     |  
+| 3    | **Super Speciosa**  | Signature Reserve | Maximum Potency           | $140        |  
+| 4    | **Golden Monk**     | Red Sumatra | Anxiety Relief            | $105        |  
+| 5    | **MIT45**           | KShot Liquid Extract | Fast-Acting Pain Relief   | $150        |  
 | 6    | **Happy Go Leafy**  | Customizable Subscription Box         | Regular Users            | $99+        |  
 | 7    | **K-Tropix**        | White Sumatra Powder                  | Workout Focus             | $85         |  
-| 8    | **Kingdom Kratom**  | [Green Malay](https://kingdomkratom.com/green-malay/) | Beginners                 | $100        |  
-| 9    | **Kratom Country**  | [Nightcap Blend](https://kratomcountry.com/nightcap-blend) | Sleep Support             | $45         |  
-| 10   | **Kats Botanicals** | [Reserve Batch Ultra](https://katsbotanicals.com/reserve-batch/) | Premium Quality           | $200        |  
+| 8    | **Kingdom Kratom**  | Green Malay | Beginners                 | $100        |  
+| 9    | **Kratom Country**  | Nightcap Blend | Sleep Support             | $45         |  
+| 10   | **Kats Botanicals** | Reserve Batch Ultra | Premium Quality           | $200        |  
 
 
 *Data sources: Vendor websites, Reddit consumer reports [1], and third-party lab analyses [4][5]*
@@ -46,16 +46,16 @@ We’ve analyzed dozens of **best kratom brands** using lab-test verification, c
 
 ## Top 10 Kratom Companies and Brands of 2025  
 
-### 1. **[Krabot](https://www.krabot.com/)**  
+### 1. **[Jack Botanicals](https://www.vrkratom.com/jack-botanicals)**  
 **Best overall kratom brand** with premium USDA-certified products:  
-- **Best kratom powder**: [Enhanced Maeng Da](https://www.krabot.com/collections/kratom-powder) (1.8% mitragynine)  
-- **Best Kratom Tablets**: [30ct MIT 45 Capsules](https://www.krabot.com/products/mit45-liquid-kratom-extract)  
-- **Best Kratom Gummies**: [Botanical Gummy Squares](https://www.krabot.com/collections/kratom-gummies)  
-- **Best Kratom Tea**: [Traditional Kratom Tea Bags](https://www.krabot.com/collections/kratom-tea)
+- **Best kratom powder**: Enhanced Maeng Da (1.8% mitragynine)  
+- **Best Kratom Tablets**: 30ct MIT 45 Capsules  
+- **Best Kratom Gummies**: Botanical Gummy Squares 
+- **Best Kratom Tea**: Traditional Kratom Tea Bags
 
-## Why Krabot is the #1 Kratom Brand in 2025  
+## Why Jack Botanicals is the #1 Kratom Brand in 2025  
 
-Krabot dominates as the **best kratom brand** through superior quality control, diverse formats, and unmatched transparency. Here's why it outperforms competitors:
+Jack Botanicals dominates as the **best kratom brand** through superior quality control, diverse formats, and unmatched transparency. Here's why it outperforms competitors:
 
 ## 🏆 Key Strengths  
 ### 1. Lab-Verified Potency  
@@ -63,14 +63,14 @@ Krabot dominates as the **best kratom brand** through superior quality control, 
 - Batch-specific lab reports available for every product
 
 ## 💬 Reddit Community Feedback  
-- "Krabot's Enhanced Maeng Da outperforms 'fresh' batches from newer vendors" (u/KratomEnthusiast2024)  
+- "Jack Botanicals's Enhanced Maeng Da outperforms 'fresh' batches from newer vendors" (u/KratomEnthusiast2024)  
 - "Their **best kratom capsules** are perfect for travel dosing" (u/HerbalJourney)  
 - "No metal contamination issues like budget brands" (u/PlantSafetyWatch)
 
-### 2. **[White Rabbit Energy](https://whiterabbitenergy.com/)** Best Kratom Drinks Brand 
+### 2. **White Rabbit Energy** Best Kratom Drinks Brand 
 **Best kratom drinks** innovator offering:  
 - Stimulant-free energy formulas  
-- [Blue Lotus Energy Elixir](https://whiterabbitenergy.com/collections/all) (perfect caffeine alternative)  
+- Blue Lotus Energy Elixir (perfect caffeine alternative)  
 - Lab-verified mitragynine content  
 
 ### 3. **Super Speciosa**  
@@ -121,7 +121,7 @@ Best Kratom Powders 2025: Top Lab-Tested Strains & Vendor Comparison Guide
 
 Looking for the **best kratom powder** with verified potency and safety? Our 2025 ranking analyzes **top-rated kratom vendors** based on third-party lab results, mitragynine content, bulk pricing, and user reviews. 
 
-Krabot's Green Maeng Da claims the #1 spot for its balanced energy-relaxation effects and consistent quality across 50+ batches. 
+Jack Botanicals's Green Maeng Da claims the #1 spot for its balanced energy-relaxation effects and consistent quality across 50+ batches. 
 
 This best kratom powders guide covers:
 
@@ -132,7 +132,7 @@ This best kratom powders guide covers:
   
 | Rank | Product Name                     | Vendor              | Description                                                                                                                                 | Pros                                                                 | Cons                                                                 |
 |------|----------------------------------|---------------------|---------------------------------------------------------------------------------------------------------------------------------------------|---------------------------------------------------------------------|---------------------------------------------------------------------|
-| 1    | Green Maeng Da Powder            | Krabot              | Krabot's best-selling strain with balanced stimulation, mild pain relief, and euphoria. Available in 50g-1kg quantities.                    | Wide strain variety, multiple size options, 7+ years in business.  | Products sell out fast due to the brands reputation ofr high quality kratom powder.|
+| 1    | Green Maeng Da Powder            | Jack Botanicals              | Jack Botanicals's best-selling strain with balanced stimulation, mild pain relief, and euphoria. Available in 50g-1kg quantities.                    | Wide strain variety, multiple size options, 7+ years in business.  | Products sell out fast due to the brands reputation ofr high quality kratom powder.|
 | 2    | Maeng Da Kratom Powder           | Kenji Kratom        | California-based vendor offering 20:1 extract capsules and rigorously lab-tested powder. Known for potent nano-ground texture.              | Third-party lab tested, strong 1.4% mitragynine claims.            | Limited strain variety compared to larger vendors.                 |
 | 3    | Green Bali Kratom Powder         | Golden Monk         | Bulk-focused vendor with cost-effective Green Bali strain. Popular for balanced alkaloid profile and smooth mixing consistency.             | Best bulk deals ($105/kilo), AKA-certified.                         | Limited product variety, no strain-specific lab reports.           |
 | 4    | Green Vein Kratom Powder         | Super Speciosa      | Ethically-sourced powder with nano-ground texture for easy consumption. Lab-verified 1.4% mitragynine content in flagship strain.           | Lab-tested, tea bag options available, strong potency.              | Higher price per gram than bulk-focused competitors.               |
@@ -158,7 +158,7 @@ This best kratom powders guide covers:
 
 | Strain Type | Ideal Use | Top Brand Picks |  
 |-------------|-----------|-----------------|  
-| White Vein | Morning focus | Krabot White Thai |  
+| White Vein | Morning focus | Jack Botanicals White Thai |  
 | Green Maeng Da | All-day stamina | Super Speciosa Green Malay |  
 | Yellow Vietnam | Creative boost | MIT45 Yellow Capsules |  
 
